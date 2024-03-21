@@ -1,1 +1,0 @@
-# Tension-Set-Diamond-Men-s-Ring-1-Carat-Jewelry
